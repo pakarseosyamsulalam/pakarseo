@@ -1,37 +1,27 @@
-## Welcome to GitHub Pages
+Konsultan SEO Syamsul Alam
+==
+![enter image description here](https://2.bp.blogspot.com/-OtQHLB_qBMc/WD0ZMyTeTOI/AAAAAAAAAF4/tcsDqPdhSMcDNuYKWhPvSWCrQ64lmqFJgCLcB/s320/pakar-dan-ahli-seo-syamsul-alam.JPG)
 
-You can use the [editor on GitHub](https://github.com/pakarseosyamsulalam/pakarseo/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+Konsultan SEO Indonesia
+--
+Konsultan SEO (Search Engine Optimisation) adalah seorang ahli yang bertugas memberikan saran-saran sekaligus bisa mengerjakan hal-hal yang terkait dengan suatu teknik agar website tersebut bisa masuk halaman 1 di google. 
+Jika anda mempunyai website, tapi pengunjungnya masih sedikit, bahkan belum ada pengunjungnya, anda bisa meminta Jasa Konsultan SEO untuk membantu website anda menjadi rangking 1 di google. Nah, di sini saya sangat merekomendasikan Konsultan SEO, anda bisa langsung menghubungi Syamsul Alam: 081233838173.
+Konsultan SEO ini bisa di minta jasa saran saja maupun mengerjakan SEO suatu website. Jasa Konsultan SEO ini sudah terbukti tekniknya, mintalah data website mana saja yang sudah berhasil masuk halaman 1 di Google, dengan kata kunci atau keyword apa saja. 
+Konsultan SEO Jakarta
+--
+Saat membuat website bisnis, banyak orang yang tidak tau teknik dasar agar website tersebut bisa ramai pengunjung dan pembeli. Padahal sekarang ini persaingan bisnis online sudah makin banyak dan di perebutkan semua orang. Untuk Konsultan SEO anda bisa mengunjungi youtube [Syamsul Alam](https://youtu.be/QVof8hrG4b4). Ia adalah ahli SEO yang menyediakan jasa konsultasi seputar optimasi website agar berada dalam top rank mesin pencari. 
+Konsultan SEO Surabaya
+--
+Menjadi seorang konsultan SEO bukanlah pekerjaan yang mudah, selain harus menguasai persaingan bisnis di google. Anda juga harus mengupdate teknik teknik SEO secara berkala. Ini karena, mendapatkan rank 1 di halaman pencari itu tidak semudah di bayangkan. Bisa saja bulan ini anda mendapat top rank pertama, dan bulan depan posisi itu sudah di rebut oleh situs website lain. Untuk itulah para ahli SEO diwajibkan untuk terus mengupdate ilmunya bahkan memperbarui ilmunya seputar SEO setiap waktu.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Konsultan Internet Marketing
+--
+Perkembangan teknologi tidak dapat 
+Pembicara Internet Marketing
+--
 
-### Markdown
+Jasa SEO
+--
+![enter image description here](https://2.bp.blogspot.com/-A-28PVVO-w8/WAcGe8v72pI/AAAAAAAAA7I/WxTWZP4xvZQIFZj1KmmgW9H20aJZuF4KgCPcB/s1600/16-konsultan-seo-syamsul-alam-191016.jpg)
+Jika anda menemuka situs orang berkali kali dan berada di halaman pertama search bar google. Maka, tak sah di ragukan lagi! Dialah ahli SEO sebenarnya. Jasa dan layanan SEO yang dia berikan tentu memiki kualitas terbaik, dan sudah terbukti!. Ya, siapa lagi kalo bukan master SEO kita Syamsul Alam. Di beberapa kata kunci keyword yang sudah saya coba, master SEO yang satu ini selalu muncul di halaman pertama. Mulai dari Konsultan SEO, layanan SEO, sampai ahli dan pakar SEO. Bahkan dia membuat beberapa tutorial di youtube yang sangat berguna untuk mempelajari ilmu SEO 
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/pakarseosyamsulalam/pakarseo/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
