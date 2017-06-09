@@ -24,7 +24,8 @@ Menjadi seorang konsultan SEO bukanlah pekerjaan yang mudah, selain harus mengua
 Konsultan Internet Marketing
 --
 
-Perkembangan teknologi tidak dapat 
+Seiring dengan berkembangnya zaman, kini masyarakat sudah tidak asing lagi adanya internet dan manfaatnya. Internet sudah menjadi sarana berkomunikasi dan info apa saja serta berbelanja juga bahkan membaca berita di media online. Apalagi perkembangan perangkat teknologi juga semakin pesat. Untuk itu di sini saya merekomendasikan Syamsul Alam untuk mengembangkan sebuah perusahaan ataupun produk dengan memberikan layanan konsultan internet atau sering di sebut internet marketing. 
+
 Pembicara Internet Marketing
 --
 
