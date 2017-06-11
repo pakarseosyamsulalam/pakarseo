@@ -30,7 +30,7 @@ Untuk itu di sini saya merekomendasikan Syamsul Alam untuk mengembangkan sebuah 
 Tentang Syamsul Alam
 --
 
-Syamsul Alam adalah seorang ahli SEO yang memiliki pengalaman lebih dalam meningkat omset bisnis anda dengan teknik SEO yang dia miliki. Ini sangat membantu anda untuk mencapai target pasar potensial, sehingga mendapatkan kesempatan yang lebih besar dan menambah daya beli bisnis yang anda geluti di internet.
+Syamsul Alam adalah seorang ahli SEO yang memiliki pengalaman lebih dalam meningkat omset bisnis anda dengan teknik SEO yang dia miliki. Ini sangat membantu anda untuk mencapai target pasar potensial, sehingga mendapatkan kesempatan yang lebih besar dan menambah daya beli bisnis yang anda geluti di internet. Ia sering sekali Memasarkan secara online bisnis offline yang ada dan dimiliki orang lain sehingga bisnis tersebut berkembang, Memasarkan produk informasi ke pasar internet marketing di Indonesia. Sehingga namanya juga sudah tidak asing lagi di dunia SEO dia juga sering mengisi seminar atau pelatihan yang berhubungan tentang internet marketing.
 
 Inti dan Tujuan dari SEO
 --
@@ -42,6 +42,12 @@ Adapun inti dan  tujuan dari SEO yaitu mendapatkan lebih banyak trafik ke situs 
 3. Membangun halaman-halaman yang relevan dengan keyword yang telah dipilih atau mengoptimasi halaman yang telah ada agar relevan dengan keyword yang telah dipilih.
 4. Membangun properti internet lain yang diperlukan untuk meningkatkan kepercayaan dan relevansi situs anda di mata mesin pencari sehingga dapat dengan lebih mudah ranking untuk keyword yang telah dipilih.
 
+Guna Konsultan SEO untuk Perusahaan Anda
+--
+
+Dalam satu kalimat, tugas kami adalah mendatangkan lebih banyak pengunjung tertarget pada situs anda. Secara terperinci, tugas dari ahli search engine optimization Indonesia (seperti saya) adalah memastikan bahwa keyword yang dipilih memiliki search intention yang sesuai dengan yang anda inginkan, sehingga tidak hanya berdampak pada trafik yang tinggi, melainkan juga peningkatan jumlah klien yang bersedia untuk melakukan bisnis dengan anda.
+
+Setelah proses pemilihan keyword dengan kriteria tertentu selesai, yang saya lakukan kemudian adalah mengoptimasi situs saya (atau klien saya) sehingga bisa ranking tinggi di search engine (seperti Google misalnya). Ranking tinggi berarti meraih posisi #1 Google atau minimal posisi 4 besar di halaman pertama Google. Proses optimasi ini meliputi dua hal, pertama adalah optimasi dalam situs, kedua adalah optimasi di luar situs
 
 
 Jasa SEO
