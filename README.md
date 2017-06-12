@@ -46,7 +46,7 @@ Adapun inti dan  tujuan dari SEO yaitu mendapatkan lebih banyak trafik ke situs 
 Guna Konsultan SEO untuk Perusahaan Anda
 --
 
-Dalam satu kalimat, tugas kami adalah mendatangkan lebih banyak pengunjung tertarget pada situs anda. Secara terperinci, tugas dari ahli search engine optimization Indonesia (seperti saya) adalah memastikan bahwa keyword yang dipilih memiliki search intention yang sesuai dengan yang anda inginkan, sehingga tidak hanya berdampak pada trafik yang tinggi, melainkan juga peningkatan jumlah klien yang bersedia untuk melakukan bisnis dengan anda.
+Dalam satu kalimat, tugas kami adalah mendatangkan lebih banyak pengunjung tertarget pada situs anda. Secara terperinci, tugas dari ahli search engine optimization Indonesia seperti Syamsul Alam adalah memastikan bahwa keyword yang dipilih memiliki search intention yang sesuai dengan yang anda inginkan, sehingga tidak hanya berdampak pada trafik yang tinggi, melainkan juga peningkatan jumlah klien yang bersedia untuk melakukan bisnis dengan anda.
 
 Setelah proses pemilihan keyword dengan kriteria tertentu selesai, yang saya lakukan kemudian adalah mengoptimasi situs saya (atau klien saya) sehingga bisa ranking tinggi di search engine (seperti Google misalnya). Ranking tinggi berarti meraih posisi #1 Google atau minimal posisi 4 besar di halaman pertama Google. Proses optimasi ini meliputi dua hal, pertama adalah optimasi dalam situs, kedua adalah optimasi di luar situs
 
